@@ -1,0 +1,316 @@
+# Pickleball Tournaments
+
+## Friday, November 7, 2025
+
+### Moneyball - 4.0-4.8 Men's Doubles - DUPR Recorded
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/28f5c4e0-ea2d-4904-98a1-bf74d0bb00b1>
+
+#### Men's 8.5 COMBO MONEYBALL Tournament
+Location: DTL | Down the Line Sports Center  
+4311 Ravensworth Rd, Annandale, VA 22003  
+Link: <https://dtl.podplay.app/community/events/fa7c81d7-43a4-4f64-b6fd-33a157dced69>  
+
+
+## Saturday, November 8, 2025
+
+#### Women's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 2.7-3.2): <https://pickleballkingdom.podplay.app/community/events/8fc9a912-c084-49cf-a413-709bf3bddb4e>  
+Link (DUPR 3.2-3.5): <https://pickleballkingdom.podplay.app/community/events/7ef3843c-cce9-426c-b41f-74d400321bb3>  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/329a6c38-b7bd-444c-a577-4c48ed821a36>  
+
+#### Veterans Pickleball Tournament
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/6d5b1df5-161d-44d4-adcb-36ee042e2894>
+
+#### Veterans In Pickleball: 3rd Annual Veterans Day Tournament!
+Location: DTL | Down the Line Sports Center  
+4311 Ravensworth Rd, Annandale, VA 22003  
+Link: <https://dtl.podplay.app/community/events/4e1b538e-c30a-4532-b18f-b30d0e708c3f>  
+
+#### Smashing Cancer! With Carilion Clinic
+Location: Performance Pickleball ROA  
+3710 Tom Andrews Rd NW, Roanoke, VA 24019  
+Link: <https://ppbrva.podplay.app/community/events/cedbb189-e87c-4859-a98c-711f87003c91>  
+
+#### DUPR Round Robin Rotating Partners
+Location: Pickleball Kingdom Lynnwood  
+3115 196th St SW, Lynnwood, WA 98036  
+Link (DUPR 3.0-3.5): <https://pickleballkingdom.podplay.app/community/events/630c7d0b-d7aa-4d5d-94b1-df21828c1a48>  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/f14f6b06-c738-404a-917c-31ef25b708d4>  
+
+#### Saturday Scramble: Intermediate Rotating Round Robin
+Location: Pickleball Kingdom Poulsbo  
+21800 Market Pl NW, Poulsbo, WA 98370  
+Link: <https://pickleballkingdom.podplay.app/community/events/fede9bf3-8e8a-49da-9960-bb4f3b693a7c>  
+
+## Sunday, November 9, 2025
+
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 2.7-3.1): <https://pickleballkingdom.podplay.app/community/events/a1695949-1a11-4b0b-ba6c-ef9a2d0fb0c3>  
+Link (DUPR 3.1-3.5): <https://pickleballkingdom.podplay.app/community/events/d17183e8-0db2-433c-a0e6-9f15126b068e>  
+Link (DUPR 3.5-3.9): <https://pickleballkingdom.podplay.app/community/events/718b8560-b34f-44d8-a802-fe225d3ca8f2>  
+
+## Monday, November 10, 2025
+
+#### Women's Singles 4.0-4.5
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/68ab84bf-5d23-45d5-a54e-5f631d644a5d>  
+
+#### Set Partner DUPR Round Robin 3.5 - 4.0
+Location: Pickleball Kingdom Poulsbo  
+21800 Market Pl NW, Poulsbo, WA 98370  
+Link (11am-1pm): <https://pickleballkingdom.podplay.app/community/events/ff01aa6f-ea7d-42b0-a786-0b4ec67e61cf>  
+Link (7pm-9pm): <https://pickleballkingdom.podplay.app/community/events/a525e5af-01de-4030-a876-dd3721842a33>  
+
+## Tuesday, November 11, 2025
+
+#### Tony Special: Veteran's Day Mini-Tournament
+Location: Location: Performance Pickleball ROA  
+3710 Tom Andrews Rd NW, Roanoke, VA 24019  
+Link (Men): <https://ppbrva.podplay.app/community/events/55e08e61-999c-44c8-a4d1-13b721343622>  
+Link (Women): <https://ppbrva.podplay.app/community/events/a18cd139-f744-48b1-8a0b-a573ddcd19f0>  
+
+## Thursday, November 13, 2025
+
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/00320a9c-c2f4-416e-93ae-7b9c14eab3f4>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/a16a9450-6f34-4a53-ace3-71fc1dab82b9>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/c6801a39-3013-4070-8524-0a384f8cf23b>  
+
+## Friday, November 14, 2025
+
+#### Crown of the Court
+Location: CityPickle Long Island City  
+9-03 44th Rd, Long Island City, NY 11101  
+Link: <https://citypickle.podplay.app/community/events/7e48db19-6428-48c3-ae53-4c578969fed4>  
+
+
+#### Moneyball - 4.0-4.8 Men's Doubles - DUPR Recorded
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/28f5c4e0-ea2d-4904-98a1-bf74d0bb00b1>  
+
+#### Women's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/e6b99493-0d81-43b9-b8d1-83daa5384178>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/15f8f9ce-f8fe-4399-99a8-393edc140158>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/9f983633-a9fd-4229-ad8c-8e3862dd72db>  
+
+
+
+
+## Saturday, November 15, 2025
+
+#### The Dink Minor League MILP Tournament
+Location: Pickleball Kingdom Hamilton
+1100 Negron Dr, Hamilton Township, NJ 08691  
+Link: <https://pickleballkingdom.podplay.app/community/events/8297985c-599a-4383-82ed-db917e17291b>
+
+#### Salvation Army Tournament
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/add330e8-3b51-4ab0-8349-6e13b0e998a6>  
+
+#### Flannel Fest Pickleball Tournament (Nov 15-16)
+Location: Austin Pickle Ranch  
+11000 Middle Fiskville Rd Building B, Austin, TX 78753, USA  
+Link: <https://app.fluidpb.com/tournaments/flannel-fest-pickleball-tournament>
+
+#### APA - The Tennessee Masters
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/4c5034c3-2b01-46ff-8136-b8c547551ddb>
+
+#### Intermediate Tournament 3.4 & Under DUPR
+Location: Pickleball Kingdom Pflugerville  
+1900 E Howard Ln STE I & E, Pflugerville, TX 78660  
+Link: <https://pickleballkingdom.podplay.app/community/events/76720d95-cc3c-4ba4-bf1b-a35179572e32>  
+
+#### DUPR Round Robin Rotating Partners
+Location: Pickleball Kingdom Lynnwood  
+3115 196th St SW, Lynnwood, WA 98036  
+Link (DUPR 3.0-3.5): <https://pickleballkingdom.podplay.app/community/events/8c488594-e561-4c67-828b-ade40e1e4cd2>  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/f96f3cd5-3b27-4114-82f5-e678856fd2b0>  
+
+#### Saturday Scramble: Advanced-Intermediate Rotating Round Robin
+Location: Pickleball Kingdom Poulsbo  
+21800 Market Pl NW, Poulsbo, WA 98370  
+Link: <https://pickleballkingdom.podplay.app/community/events/0fecd995-2c27-4362-bdd9-0953962564be>  
+
+#### Competitive and Social Mixer Individual Tourney 
+Location: Pickleball Kingdom Appleton  
+2411 S Kensington Dr, Appleton, WI 54915  
+Link (Competitive 3.35 and above): <https://pickleballkingdom.podplay.app/community/events/99e9c970-44ae-4a5f-8723-14f9e0c577d8>  
+Link (Social 3.25 and below): <https://pickleballkingdom.podplay.app/community/events/b265bf6c-653d-4830-ac41-e9e7355a5f27>  
+
+
+## Sunday, November 16, 2025
+
+#### King & Queen Mixed Tournament
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/f34b8b2e-6e71-48ef-b1e6-08a359a3d805>  
+Link (DUPR 3.0-3.5): <https://pickleballkingdom.podplay.app/community/events/a82bc0af-6f7a-416b-9133-47354224ed0f>  
+
+#### Flannel Fest Pickleball Tournament (Nov 15-16)
+Location: Austin Pickle Ranch  
+11000 Middle Fiskville Rd Building B, Austin, TX 78753, USA  
+Link: <https://app.fluidpb.com/tournaments/flannel-fest-pickleball-tournament>
+
+## Monday, November 17, 2025
+
+#### Set Partner DUPR Round Robin 4.0+
+Location: Pickleball Kingdom Poulsbo  
+21800 Market Pl NW, Poulsbo, WA 98370  
+Link (11am-1pm): <https://pickleballkingdom.podplay.app/community/events/0e7448b8-0f6f-4c09-a330-019a8d108485>  
+Link (7pm-9pm): <https://pickleballkingdom.podplay.app/community/events/a74001f2-2a55-46d6-8c2d-5da461c32371>  
+
+## Wednesday, November 19, 2025
+
+#### Century 140+ Fall Classic Tournament
+
+Location: Pickleball Kingdom Hamilton
+1100 Negron Dr, Hamilton Township, NJ 08691  
+Link: <https://pickleballkingdom.podplay.app/community/events/754d75af-a2fa-48e6-a74c-8a0d28b227f3>
+
+## Friday, November 21, 2025
+
+#### Open Doubles Moneyball
+Location: Pickleball Kingdom Memphis-Germantown
+3525 Riverdale Rd, Memphis, TN 38115  
+Link: <https://pickleballkingdom.podplay.app/community/events/414ce024-d5c1-4de2-81c3-79b12227049c>
+
+#### Moneyball - Intermediate Men's Doubles - DUPR Recorded
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/c2687eb4-b638-4135-9145-f2f0a5d65d55>
+
+## Saturday, November 22, 2025
+
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/9b6a1ae8-ceee-4c50-9970-2b849bc1d962>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/de95ca8f-45df-47fb-a4af-88f1124e9f48>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/39c3321e-eaae-4acc-8993-58906269c128>   
+
+#### DUPR Round Robin Rotating Partners
+Location: Pickleball Kingdom Lynnwood  
+3115 196th St SW, Lynnwood, WA 98036  
+Link (DUPR 3.0-3.5): <https://pickleballkingdom.podplay.app/community/events/61979ad1-f923-456f-8e3d-ed353e716572>  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/dda1eea5-d3de-4861-a7e4-f6884e236272>  
+
+#### Saturday Scramble: Beginner Rotating Round Robin
+Location: Pickleball Kingdom Poulsbo  
+21800 Market Pl NW, Poulsbo, WA 98370  
+Link: <https://pickleballkingdom.podplay.app/community/events/07bb355c-7493-45c5-8c80-d930df4bee35>  
+
+## Sunday, November 23, 2025
+
+#### Women's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/c2e6e93d-5fea-4b82-86ac-121f7c22cde1>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/b041db38-8269-46cd-9318-4a0a6d9c57f9>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/2813585d-f281-4acf-a990-dd4e9fcd5ae6>  
+
+## Monday, November 24, 2025
+
+#### Men's Singles Tournament - Advanced
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/9c227a07-d735-4fc5-bd88-e9fa764f428f>  
+
+## Wednesday, November 26, 2025
+
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/da09998b-e4c5-4864-80f0-f3624f5dfb40>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/e9810bf2-9211-4be5-ac14-a06e4d04c2b3>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/71579308-888a-47d1-9921-0a3b89a209b8>  
+
+## Friday, November 28, 2025
+
+#### Chopped Invitational (High School Age / CoEd)
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/21343ebb-2c55-4864-9ff5-bc67104fa077>  
+
+## Saturday, November 29, 2025
+
+#### DUPR Round Robin Rotating Partners
+Location: Pickleball Kingdom Lynnwood  
+3115 196th St SW, Lynnwood, WA 98036  
+Link (DUPR 3.0-3.5): <https://pickleballkingdom.podplay.app/community/events/97b6b871-2f39-47b8-9552-50963e6a1618>  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/4520b272-abb4-4ec2-9347-47eeac07c19f>  
+
+#### Saturday Scramble: Intermediate Rotating Round Robin
+Location: Pickleball Kingdom Poulsbo  
+21800 Market Pl NW, Poulsbo, WA 98370  
+Link: <https://pickleballkingdom.podplay.app/community/events/6ff4952b-baef-4ef6-9978-4348955075be>  
+
+## Sunday, November 30, 2025
+
+#### Intermediate (Under 3.0) DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/d57410d6-dded-4e0b-b25b-ace66ba466b1>  
+
+## Friday, December 5, 2025
+
+#### Moneyball - Intermediate Mixed Doubles - DUPR Recorded
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/d0251d32-74b7-4947-aeb2-ca8a098b3a1c>  
+
+## Friday, December 12, 2025
+
+#### Moneyball - Advanced Mixed Doubles - NOT DUPR Recorded
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211  
+Link: <https://pickleballkingdom.podplay.app/community/events/fa205e4f-9433-4a38-b825-da6d86dfcc76>  
+
+#### Women's Singles 3.5-3.9 DTL Classic 2025 Presented by Trustar Tournament
+Location: DTL | Down the Line Sports Center  
+4311 Ravensworth Rd, Annandale, VA 22003  
+Link: <https://dtl.podplay.app/community/events/57d2e654-cdde-4f73-82e0-50715950544d>  
+
+## Saturday, January 10, 2026
+
+#### New Year/Winter Tourney
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/cedfcf45-4202-445c-b888-4f9a6bfe27c9>  
+
+## Saturday, February 28, 2026
+
+#### DUPR Collegiate Regional Tournament
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/cf625829-9681-4095-b028-53331fc45238>  
+
+## Saturday, March 28, 2026
+
+#### PBK Spring Tournament
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/615f781b-ef4e-42ae-ad5e-d838fdacf834>  
+
+## Saturday, June 13, 2026
+
+#### PBK Open II
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/bbbb8e6e-3ba4-4f48-b698-a6c2625d5683>  
