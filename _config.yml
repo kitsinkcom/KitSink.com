@@ -1,6 +1,13 @@
+remote_theme: pages-themes/primer@v0.6.0
+plugins:
+  - jekyll-remote-theme
+
+title: KitSink.com
+description: All the info you need for pickleball, including the kitchen sink.
+
 defaults:
   - scope:
       path: ""
-      type: "pages"
+      type: pages
     values:
-      layout: "default"
+      layout: default
