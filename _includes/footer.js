@@ -1,3 +1,6 @@
+<!-- Privacy-friendly analytics by Plausible -->
+<script async src="https://plausible.io/js/pa-9uuHHRTOqjoo1eIW0lwPG.js"></script>
 <script>
-  console.log('footer.js');
+  window.plausible=window.plausible||function(){(plausible.q=plausible.q||[]).push(arguments)},plausible.init=plausible.init||function(i){plausible.o=i||{}};
+  plausible.init()
 </script>
