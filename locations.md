@@ -1,7 +1,3 @@
 # Pickleball Locations
 
-## Tennessee
-
-
-
-{% include footer.js %}
+## [Tennessee](location/tennessee)
