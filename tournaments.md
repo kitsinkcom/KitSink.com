@@ -268,49 +268,15 @@ Location: Pickleball Kingdom Tigard
 16800 SW 72nd Ave, Tigard, OR 97224  
 Link: <https://pickleballkingdom.podplay.app/community/events/d57410d6-dded-4e0b-b25b-ace66ba466b1>  
 
-## Friday, December 5, 2025
+## [December 2025](tournament/2025/december)
 
-#### Moneyball - Intermediate Mixed Doubles - DUPR Recorded
-Location: Pickleball Kingdom Nashville South
-5035 Harding Pl, Nashville, TN 37211  
-Link: <https://pickleballkingdom.podplay.app/community/events/d0251d32-74b7-4947-aeb2-ca8a098b3a1c>  
+## [January 2026](tournament/2025/january)
 
-## Friday, December 12, 2025
+## [February 2026](tournament/2025/february)
 
-#### Moneyball - Advanced Mixed Doubles - NOT DUPR Recorded
-Location: Pickleball Kingdom Nashville South
-5035 Harding Pl, Nashville, TN 37211  
-Link: <https://pickleballkingdom.podplay.app/community/events/fa205e4f-9433-4a38-b825-da6d86dfcc76>  
+## [March 2026](tournament/2025/march)
 
-#### Women's Singles 3.5-3.9 DTL Classic 2025 Presented by Trustar Tournament
-Location: DTL | Down the Line Sports Center  
-4311 Ravensworth Rd, Annandale, VA 22003  
-Link: <https://dtl.podplay.app/community/events/57d2e654-cdde-4f73-82e0-50715950544d>  
+## [June 2026](tournament/2025/june)
 
-## Saturday, January 10, 2026
 
-#### New Year/Winter Tourney
-Location: Pickleball Kingdom Belle Hall  
-680 Long Point Rd, Mt Pleasant, SC 29464  
-Link: <https://pickleballkingdom.podplay.app/community/events/cedfcf45-4202-445c-b888-4f9a6bfe27c9>  
 
-## Saturday, February 28, 2026
-
-#### DUPR Collegiate Regional Tournament
-Location: Pickleball Kingdom Belle Hall  
-680 Long Point Rd, Mt Pleasant, SC 29464  
-Link: <https://pickleballkingdom.podplay.app/community/events/cf625829-9681-4095-b028-53331fc45238>  
-
-## Saturday, March 28, 2026
-
-#### PBK Spring Tournament
-Location: Pickleball Kingdom Belle Hall  
-680 Long Point Rd, Mt Pleasant, SC 29464  
-Link: <https://pickleballkingdom.podplay.app/community/events/615f781b-ef4e-42ae-ad5e-d838fdacf834>  
-
-## Saturday, June 13, 2026
-
-#### PBK Open II
-Location: Pickleball Kingdom Belle Hall  
-680 Long Point Rd, Mt Pleasant, SC 29464  
-Link: <https://pickleballkingdom.podplay.app/community/events/bbbb8e6e-3ba4-4f48-b698-a6c2625d5683>  
