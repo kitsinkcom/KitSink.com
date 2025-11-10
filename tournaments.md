@@ -270,13 +270,13 @@ Link: <https://pickleballkingdom.podplay.app/community/events/d57410d6-dded-4e0b
 
 ## [December 2025](tournament/2025/december)
 
-## [January 2026](tournament/2025/january)
+## [January 2026](tournament/2026/january)
 
-## [February 2026](tournament/2025/february)
+## [February 2026](tournament/2026/february)
 
-## [March 2026](tournament/2025/march)
+## [March 2026](tournament/2026/march)
 
-## [June 2026](tournament/2025/june)
+## [June 2026](tournament/2026/june)
 
 
 
