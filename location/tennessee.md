@@ -1,5 +1,5 @@
 # Tennessee Pickleball Locations
-(Chattanooga, Knoxville, Memphis, and Nashille metro lists at the bottom of the page)
+(Chattanooga, Knoxville, Memphis, and [Nashville](#nashvile-metro-40-mile-radius) metro lists at the bottom of the page)
 
 ## Bon Aqua
 
