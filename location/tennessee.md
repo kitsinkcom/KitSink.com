@@ -23,6 +23,7 @@ Link: <https://www.wcparksandrec.com/athletics/adult_sports/pickleball.php>
 
 ### Tennsco Park
 115 Tennsco Rd, Dickson, TN 37055  
+Link: <https://www.cityofdickson.com/parks-department>  
 
 ## Franklin 
 
