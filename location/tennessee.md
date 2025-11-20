@@ -1,7 +1,10 @@
 # Tennessee Pickleball Locations
 (Chattanooga, Knoxville, Memphis, and [Nashville](#nashville-metro-40-mile-radius) metro lists at the bottom of the page)
 
+<!--
 NEXT: Pea Park
+LAST: NorthField church
+-->
 
 ## Bon Aqua
 
