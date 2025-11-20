@@ -1,6 +1,8 @@
 # Tennessee Pickleball Locations
 (Chattanooga, Knoxville, Memphis, and [Nashville](#nashville-metro-40-mile-radius) metro lists at the bottom of the page)
 
+NEXT: Pea Park
+
 ## Bon Aqua
 
 ### Paddle Creek Pickleball Resort
@@ -41,6 +43,16 @@ Link - Events: <https://www.lifetime.life/locations/tn/franklin/schedules.html?i
 ### Municipal Park - Gallatin
 160 Municipal Park Dr, Gallatin, TN 37066  
 Link: <https://www.gallatintn.gov/1778/Municipal-Park>  
+
+### NorthField Church
+2100 Nashville Pike, Gallatin, TN 37066  
+Link: <https://northfieldchurch.net/>  
+
+## Goodlettesville 
+
+### Peay Park
+200 Memorial Dr, Goodlettsville, TN 37072  
+Link: <https://www.goodlettsville.gov/Facilities/Facility/Details/-43>  
 
 ## Hendersonville 
 
@@ -165,6 +177,14 @@ Link: <https://www.mtjuliet-tn.gov/1613/Mundy-Memorial-Park>
 ### Municipal Park - Gallatin
 160 Municipal Park Dr, Gallatin, TN 37066  
 Link: <https://www.gallatintn.gov/1778/Municipal-Park>  
+
+### NorthField Church
+2100 Nashville Pike, Gallatin, TN 37066  
+Link: <https://northfieldchurch.net/>  
+
+### Peay Park
+200 Memorial Dr, Goodlettsville, TN 37072  
+Link: <https://www.goodlettsville.gov/Facilities/Facility/Details/-43>  
 
 ### Pickleball Kingdom Nashville North - Hendersonville
 90 Volunteer Dr Suite 480, Hendersonville, TN 37075  
