@@ -2,8 +2,8 @@
 (Chattanooga, Knoxville, Memphis, and [Nashville](#nashville-metro-40-mile-radius) metro lists at the bottom of the page)
 
 <!--
-NEXT: Pea Park
-LAST: NorthField church
+NEXT: 
+LAST: sports village 
 -->
 
 ## Bon Aqua
@@ -68,11 +68,24 @@ Link - Events: <https://pickleballkingdom.podplay.app/community/events>
 140 Scotch St, Hendersonville, TN 37075  
 Link: <https://www.hvilletn.org/Facilities/Facility/Details/Veterans-Park-Pickleball-Complex-35>  
 
+## Lebanon 
+
+### Sports Village Fitness
+1735 W Main St, Lebanon, TN 37087  
+Link: <https://www.sportsvillagefitness.com/>  
+
 ## Mount Juliet
 
+### Charlie Daniels Park
+1075 Charlie Daniels Pkwy, Mt. Juliet, TN 37122  
+Link: <https://www.mtjuliet-tn.gov/>  
+
+### Del Webb at Lake Providence
+1100 Del Webb Blvd, Mt. Juliet, TN 37122  
+Link: <https://liveatdwlp.com/>  
+
 ### Mundy Park Pickleball & Tennis Courts
-300 Belinda Pkwy, Mt. Juliet, TN 37122  
-Link: <https://www.mtjuliet-tn.gov/1613/Mundy-Memorial-Park>  
+_Link: <https://www.mtjuliet-tn.gov/1613/Mundy-Memorial-Park>  
 
 ## Murfreesboro
 
@@ -152,9 +165,17 @@ Link - Events: <https://boropickleball.com/events-1>
 Link: <https://www.nashville.gov/departments/parks/centennial-sportsplex>
 Link - Events: <https://calendar.google.com/calendar/u/0/embed?src=9k267q25n7gvllr57cdi62onf4@group.calendar.google.com&ctz=America/Chicago>  
 
+### Charlie Daniels Park
+1075 Charlie Daniels Pkwy, Mt. Juliet, TN 37122  
+Link: <https://www.mtjuliet-tn.gov/>  
+
 ### College Grove Community Center
 8601 Horton Hwy., College Grove, TN 37046  
 Link: <https://www.wcparksandrec.com/athletics/adult_sports/pickleball.php>  
+
+### Del Webb at Lake Providence
+1100 Del Webb Blvd, Mt. Juliet, TN 37122  
+Link: <https://liveatdwlp.com/>  
 
 ### Dinkville Under Broad at Nashville Yards
 131 10th Ave N, Nashville, TN 37203  
@@ -202,6 +223,10 @@ Link - Events: <https://pickleballkingdom.podplay.app/community/events>
 ### Seven Oaks Pickleball Courts
 3474 McGavock Pk, Nashville, TN 37217  
 Link: <https://www.nashville.gov/departments/parks/athletics/pickleball>  
+
+### Sports Village Fitness
+1735 W Main St, Lebanon, TN 37087  
+Link: <https://www.sportsvillagefitness.com/>  
 
 ### The Courts at West Meade
 812 Davidson Dr, Nashville, TN 37205  
