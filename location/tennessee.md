@@ -94,10 +94,18 @@ _Link: <https://www.mtjuliet-tn.gov/1613/Mundy-Memorial-Park>
 Link: <https://apexpickleballtn.com/>  
 Link - Events: <https://www.facebook.com/profile.php?id=61564500527393>  
 
+### Blackman Community Center
+4310 Manson Pike, Murfreesboro, TN 37129  
+Link: <https://blackmancommunityclub.com/>  
+
 ### Boro Pickleball
 605 River Rock Blvd, Murfreesboro, TN 37128  
 Link: <https://boropickleball.com/>  
 Link - Events: <https://boropickleball.com/events-1>  
+
+### Old Fort Park
+916 Golf Ln, Murfreesboro, TN 37129
+Link: <https://www.murfreesborotn.gov/190/Old-Fort-Park>  
 
 ## Nashville
 
@@ -128,6 +136,16 @@ Link: <https://www.nashville.gov/departments/parks/athletics/pickleball>
 Link: <https://wmcourts.com/>  
 Link - Events: <https://widgets.courtreserve.com/Online/Public/EmbedCode/11230/27810>  
 
+## Smyrna 
+
+### Cedar Stone Park
+3639 Morton Ln, Smyrna, TN 37167  
+Link: <https://www.townofsmyrna.org/parks_business_detail_T55_R28.php>  
+
+### Hilltop-Rosenwald Park
+565 Mason Tucker Dr, Smyrna, TN 37167  
+Link: <https://www.townofsmyrna.org/parks_business_detail_T55_R30.php>  
+
 ## Spring Hill
 
 ### Longview Recreation Center
@@ -155,10 +173,18 @@ Link - Events: <https://www.facebook.com/profile.php?id=61564500527393>
 4662 Bethesda Road, Thompson's Station, TN 37174  
 Link: <https://www.wcparksandrec.com/athletics/adult_sports/pickleball.php>  
 
+### Blackman Community Center
+4310 Manson Pike, Murfreesboro, TN 37129  
+Link: <https://blackmancommunityclub.com/>  
+
 ### Boro Pickleball
 605 River Rock Blvd, Murfreesboro, TN 37128  
 Link: <https://boropickleball.com/>  
 Link - Events: <https://boropickleball.com/events-1>  
+
+### Cedar Stone Park
+3639 Morton Ln, Smyrna, TN 37167  
+Link: <https://www.townofsmyrna.org/parks_business_detail_T55_R28.php>  
 
 ### Centennial Sportsplex Fitness & Tennis Center
 222 25th Ave N, Nashville, TN 37203  
@@ -185,6 +211,10 @@ Link: <https://nashvilleyards.dinkville.com/>
 801 Percy Warner Blvd, Nashville, TN 37205  
 Link: <https://www.nashvillejcc.org/fitness-sports/adult-sports/>  
 
+### Hilltop-Rosenwald Park
+565 Mason Tucker Dr, Smyrna, TN 37167  
+Link: <https://www.townofsmyrna.org/parks_business_detail_T55_R30.php>  
+
 ### Life Time - Franklin
 5020 Carothers Pkwy, Franklin, TN 37067  
 Link: <https://www.lifetime.life/locations/tn/franklin/sports/pickleball.html>  
@@ -205,6 +235,10 @@ Link: <https://www.gallatintn.gov/1778/Municipal-Park>
 ### NorthField Church
 2100 Nashville Pike, Gallatin, TN 37066  
 Link: <https://northfieldchurch.net/>  
+
+### Old Fort Park
+916 Golf Ln, Murfreesboro, TN 37129
+Link: <https://www.murfreesborotn.gov/190/Old-Fort-Park>  
 
 ### Peay Park
 200 Memorial Dr, Goodlettsville, TN 37072  
